@@ -1,2 +1,2 @@
 # ayush-07
-Author - Ayush vala
+Author - Ayush vala(AYUSH)
